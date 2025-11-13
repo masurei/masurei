@@ -2,7 +2,7 @@
 
 <a href="https://x.com/cagelabyrinth"><img style="width:40%;" src="https://i.postimg.cc/6303MT6F/Gq-kzt-Ra-AAID5-Nr.jpg"></a>
 
-<b>emmy</b> 🐇 2004 she/him <br>
+<b>emmy</b> 🐇 <br>
 <img src="https://i.postimg.cc/BZCBqdCs/aa629271-original.gif"> pjmoon, bandori, caligula, su, the sims, rhythm games, <i>etc.</i> <br>
 int encouraged, im usually off tab so whisper if u need me! ₍ᐢ. .ᐢ₎<br>
 
